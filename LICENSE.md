@@ -1,4 +1,4 @@
-# 
+# elite DaVinci Resolve for PC | DaVinci Resolve for Windows Preset | multi-cam-editing + title-animation offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
